@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🧑‍💻 I'm I Made N. J. P you can call me Putra.
+- 💻.I'm currently working as a Junior DevOps at PT. SENTRA VIDYA UTAMA.
+- 🙇‍♂️ I'm looking to collaborate with anyone.
+- 📫 How to reach me: imadenugraha@gmail.com
